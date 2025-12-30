@@ -1,2 +1,2 @@
-# Bungo-Stray-Dogs-SCHOOL-AU
+# Bungo-Stray-Dogs-
 bsd school au. skk(?)
