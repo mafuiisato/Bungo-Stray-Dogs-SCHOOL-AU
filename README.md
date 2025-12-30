@@ -108,4 +108,6 @@ The short boy cut him off, and of course Dazai Chuckled. He took his hand and th
 
 ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
 
+More coming!
+
 
