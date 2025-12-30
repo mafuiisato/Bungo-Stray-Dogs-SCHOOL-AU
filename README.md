@@ -100,7 +100,7 @@ Dazai simply looked over to him, as if he could always fall off, but he knew if 
 
 *'Stop.'*
 
-The short boy cut him off, and of course Dazai Chuckled. He took his hand and they both laid there on the floor, looking at the cloud together. Just the two of them alone, a heartwarming scene indeed.
+The short boy cut him off, and of course Dazai Chuckled. He took his hand and they both laid there on the floor, looking at the clouds together. Just the two of them alone, a heartwarming scene indeed.
 
 ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
 
