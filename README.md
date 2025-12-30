@@ -4,7 +4,8 @@
 
 *some headcanons from google!!*
 
-start: 30.12.205
+start: 30.12.2025
+
 end: ???
 
 ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
