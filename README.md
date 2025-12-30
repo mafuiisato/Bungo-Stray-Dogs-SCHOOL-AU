@@ -1,4 +1,4 @@
-# Bungo-Stray-Dogs-
+# Bungo Stray Dogs Oneshots !!
 *bsd school au. skk(?), sskk(?)*
 
 
