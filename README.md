@@ -31,7 +31,7 @@ PROFILES.
 
 ────୨ৎ────
 
-[Atsushi N](https://static.wikia.nocookie.net/bsdmayoi/images/e/e1/0090_Nakajima_Atsushi_full.png/revision/latest?cb=20180219143850)
+[Atsushi N.](https://static.wikia.nocookie.net/bsdmayoi/images/e/e1/0090_Nakajima_Atsushi_full.png/revision/latest?cb=20180219143850)
 
 1st year, sits in Front of the class, fairly popular, average amount of friends, normal grades, talks with akutagawa alot, hangs out with dazai, chuuya & akutagawa, volleyball team, wears school hoodie.
 
