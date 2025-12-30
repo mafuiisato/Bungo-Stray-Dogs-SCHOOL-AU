@@ -74,3 +74,34 @@ They continued arguing (with Dazai just laughing the hell out of him) until the 
 
 ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
 
+After what seemed like forever, it was Lunchtime. The four of them met up in the hallways, debating if they should all sit together. Akutagawa absolutely did NOT want to sit with that.. anooyingly kind Atsushi, but he didn't mind if Dazai came. So they all agreed.
+
+The Cafeteria was loud and joyful, everyone resting from the pure chaos of their last lessons, sure, school is hard to manage after all.
+
+Meanwhile Dazai secretly took some of Chuuya's money (in some way) and bought his own lunch. Atsushi and Akutagawa already had their pre-made Lunches, so they sat silently on their Table.
+
+Suddenly, a girl came up to Atsushi and confessed to him! The Black haired boy was schocked.. and jealous at the same time. Before the shy boy could say anything, Akutagawa already scared her off with his menacing gaze.
+
+*'Well, that was unexpected.'*
+
+Atsushi simply said, still akward from the earlier commotion.
+
+From around the corner, you could already see that Chuuya found out. After that he already started swearing, until the Teacher stopped him. Even the Teacher's couldn't stop the Soukoku's Antics! Most of them probably gave up a long time ago, because they were too much to Deal with.
+
+˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
+
+In the middle of the Lesson, Dazai and Chuuya asked to go to the bathroom, but secretly they went to the rooftop. It was windy, but still a nice sight to see. Dazai immedially went to the edge of the building, looking down.
+
+*'Are you trying to get yourself killed Mackerel?!'*
+
+Dazai simply looked over to him, as if he could always fall off, but he knew if he actually did, Chuuya would be the one to stop him, he always has.
+
+*'Chibi! Isn't it such a beautiful day to di-'*
+
+*'Stop.'*
+
+The short boy cut him off, and of course Dazai Chuckled. He took his hand and they both laid there on the floor, looking at the cloud together. Just the two of them alone, a heartwarming scene indeed.
+
+˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
+
+
