@@ -108,6 +108,31 @@ The short boy cut him off, and of course Dazai Chuckled. He took his hand and th
 
 ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
 
+It was a cold, windy afternoon. Chuuya and Dazai decided to ride on the same train. As Dazai talked to him about anything in his mind, the short teen started to fall asleep, leaning his head on Dazai's. He smiled at that, and laid his chin on his head too, wrapping one arm around him. As the train moved on, they sat there silently, as if nothing would happen to them, and if there was, Dazai would protect him.
+
+As Chuuya stirred awake, he noticed that he was still laying on the bandaged boy. He immedially moved away, his face turning red by an instant. Dazai didn't say anything, just gave him that signature smirk.
+
+˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
+
+![Your Banner](https://64.media.tumblr.com/c484a5b4cb8b5490270ae8c81ee7eca0/tumblr_odf73wuzFu1qmlmyuo1_1280.jpg)
+────୨ৎ────
+
+oneshot based off this pic!!
+
+────୨ৎ────
+
+It was a quiet afternoon in the Library, where the four had met up for a class project, well, they had to be paired randomly with other classes, so Dazai of course chose Atsushi, which Akutagawa was pissed off about because once again he wasn't acknowledged. So he was paired with Chuuya.
+
+The bandaged teen started goofing around, Chuuya started getting anooyed, while only the other two actually started the Project by themselves. Meanwhile Akutagawa had only one goal: make Dazai proud.
+
+Finally after a few minutes Dazai calmed down, actually doing work with Atsushi, which pretty much already did half the project to begin with.
+
+After ages group 1 was done (Atsu, Dazai), showing off to the other two (mostly just Dazai but ok).
+
+Almost immedially Chuuya started arguing, trying to atleast be considerate and being quiet at it. The tall teen of course, just laughed as always.
+
+˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
+
 More coming!
 
 
